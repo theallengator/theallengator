@@ -6,7 +6,7 @@
 
 ### $\color{#93ff73}{\textsf{ALLEN}}$
 
-<sup> $\color{#58a33b}{\textsf{15 . he/him . transmed}}$ </sup>
+<sup> $\color{#58a33b}{\textsf{15 . he/him . trans man}}$ </sup>
 
 $\color{#93ff73}{\textsf{KAIMAN SYNPATH}}$
 
